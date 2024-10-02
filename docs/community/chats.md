@@ -173,6 +173,9 @@
 
 👉 RC AVIA 39 Авиамоделизм Калининград https://t.me/+3_BbiaLe6_01N2Yy
 
+👉 Дагестан
+https://t.me/fpv_dag
+
 👉 Казань https://t.me/fpv_dron_kazan
 
 👉 По запросу https://t.me/ivan_racing_drone_omsk можно попасть в чат Омска
